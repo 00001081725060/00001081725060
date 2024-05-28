@@ -6,4 +6,5 @@ _Aluna do 3º ano, estudante de tecnologia._
 - 🌱 No momento estou aprendendo progamação básica.❤️
 - 😄 Pronomes: Ela/Dela.❤️
 - 🪐✨
+- 
 ![Cachorrinho😄](https://media.tenor.com/eOBwhgtS3mwAAAAM/dog-smile.gif)
